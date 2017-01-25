@@ -38,10 +38,10 @@ Build your story, beginning - middle – conclusion,
 ( BASIC LEARNING CONCLUSIONS ) be a good friend, don’t take what does not belong to you, don’t lie, don’t over indulge like eat something that will make you sick, don’t say hurtful words even though you think it’s funny,  treat everyone equally, don’t hit or bite or throw rocks, be respectful to elders, learning other countries customs like Oriental custom take shoes off before you go into a house, know when to be silly and know when to behave, If you get caught do the punishment don’t try to get away with it, Don’t blame someone else when you did something wrong, Don’t  follow your friends when they are doing something wrong.
  
 Character Background:
-                                                     
-                  PEAPIE is the main character. She’s the voice of the Application. She is a little girl of 4-5 years old. She is Caucasian and has blond hair. She is smart but still has lots to learn. She has pig tails that are straight and bows tied when starting the story but get uneven and bow unravels while she plays. She is the voice of reason, but not nagging. She is intelligent and laughs a lot. When she is excited and does not think, she is influenced by Dumpster to do silly things. But realizes before it’s too late that what they are doing is wrong.
+
+PEAPIE is the main character. She’s the voice of the Application. She is a little girl of 4-5 years old. She is Caucasian and has blond hair. She is smart but still has lots to learn. She has pig tails that are straight and bows tied when starting the story but get uneven and bow unravels while she plays. She is the voice of reason, but not nagging. She is intelligent and laughs a lot. When she is excited and does not think, she is influenced by Dumpster to do silly things. But realizes before it’s too late that what they are doing is wrong.
  
-                  DUMPSTER is a naughty dog, gets pea pie in trouble, but loves pea pie a lot. He is silly and speaks in simple pre-school words with grunts, barks and moans. Peapie understands him. Often speaks for him. Peapie found him as a puppy at the dump site. She took him in and they have been great friends since. He shows remorse for his naughtiness with a sad face and tail between his legs.
+DUMPSTER is a naughty dog, gets pea pie in trouble, but loves pea pie a lot. He is silly and speaks in simple pre-school words with grunts, barks and moans. Peapie understands him. Often speaks for him. Peapie found him as a puppy at the dump site. She took him in and they have been great friends since. He shows remorse for his naughtiness with a sad face and tail between his legs.
  
 Stages of Development:
  
